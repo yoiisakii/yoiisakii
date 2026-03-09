@@ -1,9 +1,9 @@
-![Alt Text](https://64.media.tumblr.com/7d341a8e5c27ef94540b4c4133280b4f/1e0a91ee91082f80-3a/s2048x3072/3047150c581e5d2d42ba956bb3519bc7909daf33.pnj)
+![Alt Text](https://64.media.tumblr.com/7c0707a19ef886ccafd318740145cccf/873f0e78b884bc84-a0/s1280x1920/d477164ec8d024ae0eed92e8fb71618ff768533f.pnj)
 ##   
-![Alt Text](https://64.media.tumblr.com/281690dbb879b77859e3564a04d02e38/9e2fca3d59303192-c6/s2048x3072/35e09505522bdbd7a0830b32c29cf9a3dcbd35a4.pnj)
+![Alt Text](https://64.media.tumblr.com/e6003c887be059883e43dd258331a141/b9ed4818df0abd52-9d/s640x960/67c37ac74cd5ce13d6876e2fb5974f955881d378.pnj)
 wowzas! wip
   
-![Alt Text](https://64.media.tumblr.com/64e5afe63195bec6072698ec8cb4a5b4/5b302b5e57ab4c19-7a/s1280x1920/88f985301563f270e9149ca86ac09eb90b7a1e31.pnj)
+![(https://www.tumblr.com/zresp)](https://64.media.tumblr.com/c08d3e4b4b511c6e094022ab104b3493/63c2329a79ca943d-ff/s1280x1920/d17b927b8ee4bb9a878fdb01b02d154f1f77d42e.pnj)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [Straw](https://overvannified.straw.page)⠀⠀⠀⠀int c+h freely⠀⠀⠀⠀⠀⠀ [Ata](https://sundaesvannyy.atabook.org)
 
