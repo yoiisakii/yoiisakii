@@ -6,7 +6,7 @@
 wowzas! wip
   
 ggrr
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [Straw](https://overvannified.straw.page)⠀⠀⠀⠀int c+h freely⠀⠀⠀⠀⠀⠀ [Ata](https://sundaesvannyy.atabook.org)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [Ata](https://sundaesvannyy.atabook.org)
   <details>
     <summary>me</summary>
   hello, thanks for stopping by, im Yuisaki/Sundae, i love kanade and im a kanade kinnie irl but doubles iwec / dni
